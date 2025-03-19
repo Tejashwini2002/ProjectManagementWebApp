@@ -13,7 +13,7 @@ Output:
 <br>
 ![Image](https://github.com/user-attachments/assets/c4e8242e-2af7-4774-bdbb-d2dc3244410b)
 <br>
-![Image](https://github.com/user-attachments/assets/70af7254-2167-4fc0-a1e7-04406cdd5dcf)
+![Image](https://github.com/user-attachments/assets/65684626-76f5-4c9e-9e6a-4c39a5b6b24e)
 <br>
 ![Image](https://github.com/user-attachments/assets/1a036879-60e7-4f63-b890-a95aff8a3c12)
 <br>
